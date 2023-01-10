@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'm currently working on graphic designer and i learn data analyst<br>Other skills that I have include Ms. Office, Graphic Design, Digital Marketing, Programming, Data Analysis, Video Editing.
+i'm currently working on graphic designer and i learn data analyst<br>Other skills that I have include Ms. Office, Digital Marketing, Programming,  Video Editing.
 
 
 ## 🌐 Socials:
